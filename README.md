@@ -2,11 +2,11 @@
 # Hoja de Vida
 
 ## Nombre Completo
-**Profesión:** desarrollador web 
+**Profesión:** Desarrollador y Analista Web 
 
 ## 📞 Contacto
-- **Teléfono:** +57 123 456 7890
-- **Email:** [correo@ejemplo.com](mailto:correo@ejemplo.com)
+
+- **Email:** [correo@ejemplo.com](jaimecha9324@gmail.com)
 - **LinkedIn:** [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)
 
 ## 🏢 Experiencia Laboral
