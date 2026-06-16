@@ -7,7 +7,7 @@
 ## 📞 Contacto
 
 - **Email:** [jaimecha9324@gmail.com](jaimecha9324@gmail.com)
-)
+
 - **LinkedIn:** [jaime-chaparro-8b3a36318](jaime-chaparro-8b3a36318)
 
 ## 🏢 Experiencia Laboral
