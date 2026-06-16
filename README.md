@@ -7,7 +7,7 @@
 ## 📞 Contacto
 
 - **Email:** [jaimecha9324@gmail.com](jaimecha9324@gmail.com)
-- **LinkedIn:** [https://www.linkedin.com/in/jaime-chaparro-8b3a36318/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B014yxN%2BOR4GTzwjecYwLbg%3D%3D](https://linkedin.com/in/tuusuario)
+- **LinkedIn:** [www.linkedin.com/in/jaime-chaparro-8b3a36318](www.linkedin.com/in/jaime-chaparro-8b3a36318)
 
 ## 🏢 Experiencia Laboral
 ### **Empresa XYZ** _(2020 - Actualidad)_
