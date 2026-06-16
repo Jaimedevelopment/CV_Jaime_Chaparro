@@ -10,6 +10,8 @@
 
 - **LinkedIn:** [jaime-chaparro-8b3a36318](https://www.linkedin.com/in/jaime-chaparro-8b3a36318)
 
+- **Instagram**
+
 ## 🏢 Experiencia Laboral
 ### **Empresa XYZ** _(2020 - Actualidad)_
 - Puesto ocupado y descripción breve.
