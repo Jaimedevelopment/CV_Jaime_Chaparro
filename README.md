@@ -1,7 +1,7 @@
 
 # Hoja de Vida
 
-## Nombre Completo
+## Jaime ALberto Chaparro Galindo 
 **Profesión:** Desarrollador y Analista Web 
 
 ## 📞 Contacto
