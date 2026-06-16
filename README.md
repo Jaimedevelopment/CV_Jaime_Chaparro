@@ -6,7 +6,7 @@
 
 ## 📞 Contacto
 
-- **Email:** [correo@ejemplo.com](jaimecha9324@gmail.com)
+- **Email:** [jaimecha9324@gmail.com](jaimecha9324@gmail.com)
 - **LinkedIn:** [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)
 
 ## 🏢 Experiencia Laboral
