@@ -8,7 +8,7 @@
 
 - **Email:** [jaimecha9324@gmail.com](mailto:jaimecha9324@gmail.com)
 
-- **LinkedIn:** [jaime-chaparro-8b3a36318](jaime-chaparro-8b3a36318)
+- **LinkedIn:** [jaime-chaparro-8b3a36318](https://www.linkedin.com/in/jaime-chaparro-8b3a36318)
 
 ## 🏢 Experiencia Laboral
 ### **Empresa XYZ** _(2020 - Actualidad)_
