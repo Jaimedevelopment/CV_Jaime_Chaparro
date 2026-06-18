@@ -10,7 +10,7 @@
 
 - **LinkedIn:** [jaime-chaparro-8b3a36318](https://www.linkedin.com/in/jaime-chaparro-8b3a36318)
 
-- **Instagram**
+- **Instagram** [jaimecha_2413](https://www.instagram.com/jaimecha_2413?igsh=OTJpMGwzbDVocGh5&utm_source=qr)
 
 ## 🏢 Experiencia Laboral
 ### **Empresa XYZ** _(2020 - Actualidad)_
