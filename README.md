@@ -13,8 +13,8 @@
 - **Instagram** [jaimecha_2413](https://www.instagram.com/jaimecha_2413?igsh=OTJpMGwzbDVocGh5&utm_source=qr)
 
 ## 🏢 Experiencia Laboral
-### **grupo accore** _(sofitel baru cartagena )_
-- Puesto ocupado y descripción breve.
+### **grupo accore** _(sofitel baru cartagena- actualmente)_
+- cocinero principal restaurante pergola, tipo de cocina orienta, elaboracion sushi.
 
 ### **Empresa ABC** _(2018 - 2020)_
 - Puesto ocupado y descripción breve.
