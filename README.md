@@ -16,17 +16,17 @@
 ### **grupo accore** _(sofitel baru cartagena- actualmente)_
 - cocinero principal restaurante pergola, tipo de cocina orienta, elaboracion sushi.
 
-### **Meraki sushi y wok2020)_
-- Puesto ocupado y descripción breve.
+### **Meraki sushi y wok**_(chef ejecutivo 2021-2024)
+- Creacion de restaurante, manejo de materia prima, inventarios, comidas preparadas, tecnica oriental, manejo de personal.
 
 ## 🎓 Educación
-### **Universidad Ejemplo** _(2014 - 2018)_
-- Título obtenido.
+### **Cocinero por competencia laboral (SENA)** _(2019 - 2023)_
+- Cocinero por competencia laboral.
 
 ## 💡 Habilidades
-- **Habilidad 1**
-- **Habilidad 2**
-- **Habilidad 3**
+- **Pensamiento Analitico**
+- **Trabajo Bajo Precion**
+- **Atencion al Detalle**
 
 ---
 
