@@ -16,7 +16,7 @@
 ### **grupo accore** _(sofitel baru cartagena- actualmente)_
 - cocinero principal restaurante pergola, tipo de cocina orienta, elaboracion sushi.
 
-### **Empresa ABC** _(2018 - 2020)_
+### **Meraki sushi y wok2020)_
 - Puesto ocupado y descripción breve.
 
 ## 🎓 Educación
