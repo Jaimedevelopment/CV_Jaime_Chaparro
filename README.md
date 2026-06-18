@@ -13,7 +13,7 @@
 - **Instagram** [jaimecha_2413](https://www.instagram.com/jaimecha_2413?igsh=OTJpMGwzbDVocGh5&utm_source=qr)
 
 ## 🏢 Experiencia Laboral
-### **Empresa XYZ** _(2020 - Actualidad)_
+### **grupo accore** _(sofitel baru cartagena )_
 - Puesto ocupado y descripción breve.
 
 ### **Empresa ABC** _(2018 - 2020)_
